@@ -1,4 +1,4 @@
-🦈 Contact only for important purpose 🐬
+• Contact only for important purpose •
 
 | sigma.ops@protonmail.com |
 
